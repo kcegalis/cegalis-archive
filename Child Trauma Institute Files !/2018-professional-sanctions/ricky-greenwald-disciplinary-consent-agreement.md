@@ -30,9 +30,9 @@ In 2018, Ricky Greenwald entered into a formal Consent Agreement with the Massac
  ## Source Files
  
 - PDF File
-https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Consent%20Agreement%20-%20Ricky%20Greenwald.pdf
+https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Disciplinary-Consent%20Agreement%20-%20Ricky%20Greenwald.pdf
 - MS Word File
-https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Consent%20Agreement%20-%20Ricky%20Greenwald.docx
+https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Disciplinary-Consent%20Agreement%20-%20Ricky%20Greenwald.docx
 
 ## Legal Status
 
