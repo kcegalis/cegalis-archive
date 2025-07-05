@@ -1,4 +1,4 @@
-# Bambi Rattner – Consent Agreement Summary (2018)
+# Bambi Rattner – Disciplinary Consent Agreement Summary (2018)
 
 This file summarizes the **Consent Agreement** entered into by **Bambi M. Rattner, Psy.D.**, as published by the **Massachusetts Board of Registration of Psychologists** in 2018 (Investigative Intake Record No. 2018-000496-IT-ENF).
 
