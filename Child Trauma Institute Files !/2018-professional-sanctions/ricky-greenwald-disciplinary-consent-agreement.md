@@ -2,7 +2,7 @@
 
 License placed on probation by Massachusetts Board of Psychologists.
 
-This file summarizes the **Consent Agreement** entered into by **Ricky Greenwald, Psy.D.**, as recorded by the **Massachusetts Board of Registration of Psychologists** under Investigative Intake Record No. 2017-000912-IT-ENF.
+This file summarizes the **Consent Agreement** entered into by **Ricky Greenwald, Psy.D.**, as recorded by the **Massachusetts Board of Registration of Psychologists** under Investigative Intake Record No. 2018-000912-IT-ENF.
 
 ## Summary
 
