@@ -1,5 +1,5 @@
 # cegalis-archive
-A public archive documenting the accusations made by Ray and Marilynn Knutsen, along with the judicial abuse and professional misconduct that enabled them.
+A public archive documenting the accusations made by Ray Knutsen and Marilynn (Fogarty) Knutsen, along with the judicial abuse and professional misconduct that enabled them.
 
 
 ## Purpose
