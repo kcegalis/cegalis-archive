@@ -28,6 +28,9 @@ In 2018, Bambi Rattner entered into a formal Consent Agreement with the Massachu
   - File **quarterly and final reports** with the Board and submit to further appearances if required.
   - Cover all costs associated with compliance, supervision, and reporting.
 
+ ## Source File
+  - https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Consent%20Agreement%20-%20Bambi%20Rattner.pdf
+
 ## Legal Status
 
 Rattner **waived her right to a hearing or appeal** and accepted the agreement as a final, binding resolution. This agreement is publicly available and may be forwarded to other states or agencies as required by law.
