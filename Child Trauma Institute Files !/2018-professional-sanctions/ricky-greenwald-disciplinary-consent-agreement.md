@@ -1,4 +1,4 @@
-# Ricky Greenwald – Consent Agreement Summary (2018)
+# Ricky Greenwald – Disciplinary Consent Agreement Summary (2018)
 
 This file summarizes the **Consent Agreement** entered into by **Ricky Greenwald, Psy.D.**, as recorded by the **Massachusetts Board of Registration of Psychologists** under Investigative Intake Record No. 2017-000912-IT-ENF.
 
