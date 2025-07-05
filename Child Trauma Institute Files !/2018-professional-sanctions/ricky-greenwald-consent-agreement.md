@@ -27,9 +27,12 @@ In 2018, Ricky Greenwald entered into a formal Consent Agreement with the Massac
   - Submit **quarterly and final reports** from the Supervising Psychologist
   - Comply with in-person Board appearances and all terms at his own expense
 
- ## Source File
+ ## Source Files
  
-- https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Consent%20Agreement%20-%20Ricky%20Greenwald.pdf
+- PDF File
+https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Consent%20Agreement%20-%20Ricky%20Greenwald.pdf
+- MS Word File
+https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Consent%20Agreement%20-%20Ricky%20Greenwald.docx
 
 ## Legal Status
 
