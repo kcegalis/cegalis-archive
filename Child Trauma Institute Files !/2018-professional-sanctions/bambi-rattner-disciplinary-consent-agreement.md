@@ -30,9 +30,9 @@ In 2018, Bambi Rattner entered into a formal Consent Agreement with the Massachu
 
  ## Source Files
   - PDF File
-https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Consent%20Agreement%20-%20Bambi%20Rattner.pdf
+https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Disciplinary-Consent%20Agreement%20-%20Bambi%20Rattner.pdf
   - MS Word File
-https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Consent%20Agreement%20-%20Bambi%20Rattner.docx
+https://github.com/kcegalis/cegalis-archive/blob/main/Child%20Trauma%20Institute%20Files%20!/2018-professional-sanctions/2018-06-25-Disciplinary-Consent%20Agreement%20-%20Bambi%20Rattner.docx
 
 ## Legal Status
 
