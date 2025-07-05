@@ -1,5 +1,7 @@
 # Bambi Rattner – Disciplinary Consent Agreement Summary (2018)
 
+License placed on probation by Massachusetts Board of Psychologists
+
 This file summarizes the **Consent Agreement** entered into by **Bambi M. Rattner, Psy.D.**, as published by the **Massachusetts Board of Registration of Psychologists** in 2018 (Investigative Intake Record No. 2018-000496-IT-ENF).
 
 ## Summary
